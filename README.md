@@ -1,2 +1,1 @@
-# read-book
-book read
+I withdrew my hand in horror from the hole. It was inexplicably coated in... centipedes? My hand was a writhing mass of legs and mandibles, and i received vicious bites all over them. My mouth contorted itself into a perfect "O", blood-curdling shriek emanating from within. Slamming my hand against the wall in a concerted effort to remove the centipedes, i heard bones snap and crack with each swing. but i was unfazed. By the end of it, my hand was a mangled mess of exposed bone, and bright crimson marks and welts all over it. By then, i was shaken to the very core at the horrors seen, and meekly retreated out of the house, scarcely willing to return for my lost camcorder.
